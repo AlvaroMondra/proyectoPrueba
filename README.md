@@ -1,2 +1,0 @@
-# proyectoPrueba
-puo6y5et4w3rq2eQWSadZVFBXGNCHMJVK,GUILY89PT7R6E5W43Q2eqsaxcvysrhtagrwefqAVDSB
